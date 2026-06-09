@@ -16,10 +16,17 @@ For the summer, I'm at ITECH, currently enrolled in computers and information ab
 
 For starters, doing the dual enrollment course is really being beneficial in my way of learning how to be able to create a website, and learning way more about computers than I have originally thought.
 Once I get my certifications, I'll apply as an intern for a company, and start low, but eventually become in a higher professional position and creating my own business, where we aid in others getting their devices fixed, needing to find alternatives, all while at the satisfaction of the customer!
+
 6th grade, recieved my certification for Microsoft word
+
 6th grade, recieved my certification for Microsoft Powerpoint
+
 6th grade, recieved my certification for Microsoft Excel
+
 7th grade, recieved my certification for ESB
+
 9th grade. currently learning about computer software
+
 10th (now), reading and gaining hands on experience to further on apply it for later uses.
+
 Thank you for taking the time for my website, and there will be more soon! :D
