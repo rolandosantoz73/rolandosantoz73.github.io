@@ -23,7 +23,7 @@ repository               : "rolandosantoz73.github.io"
 #               Additional customization can be done by editing /_includes/author-profile.html
 author:
   # Biographic information
-  avatar           : "profile.png.png"
+  avatar           : "grey.png"
   name             : "Boti"
   pronouns         : # example: "he/him"  
   bio              : "Learning technology to become a professional myself"
