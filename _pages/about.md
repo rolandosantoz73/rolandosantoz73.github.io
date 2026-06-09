@@ -27,6 +27,8 @@ Once I get my certifications, I'll apply as an intern for a company, and start l
 
 9th grade. currently learning about computer software
 
-10th (now), reading and gaining hands on experience to further on apply it for later uses.
+10th (recently finished), reading and gaining hands on experience to further on apply it for later uses.
+
+11th (this year), using what I know and repairing both phones and similar devices to it, gaining even more hands on experience, and experimenting with them to add on even more!
 
 At the most, experimenting with AI, and figuring out more with computer parts, I will slowly be able to create and or design a pathway for alternatives for issues and or future problems.
