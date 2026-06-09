@@ -32,3 +32,4 @@ Once I get my certifications, I'll apply as an intern for a company, and start l
 11th (this year), using what I know and repairing both phones and similar devices to it, gaining even more hands on experience, and experimenting with them to add on even more!
 
 At the most, experimenting with AI, and figuring out more with computer parts, I will slowly be able to create and or design a pathway for alternatives for issues and or future problems.
+Lowkey I can't wait to see where the wind takes me, and if people know this, they'll get the joke "hackyboi.com" "epic hacking skills"
