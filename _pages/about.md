@@ -17,6 +17,8 @@ For the summer, I'm at ITECH, currently enrolled in computers and information ab
 For starters, doing the dual enrollment course is really being beneficial in my way of learning how to be able to create a website, and learning way more about computers than I have originally thought.
 Once I get my certifications, I'll apply as an intern for a company, and start low, but eventually become in a higher professional position and creating my own business, where we aid in others getting their devices fixed, needing to find alternatives, all while at the satisfaction of the customer!
 
+For JROTC, Dedicated student leader with proven experience managing, training, and motivating a squad of peers. Combines strong leadership skills with active listening to resolve conflicts, support team morale, and ensure all mission goals are met efficiently
+
 6th grade, recieved my certification for Microsoft word
 
 6th grade, recieved my certification for Microsoft Powerpoint
