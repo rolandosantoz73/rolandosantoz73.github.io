@@ -29,4 +29,4 @@ Once I get my certifications, I'll apply as an intern for a company, and start l
 
 10th (now), reading and gaining hands on experience to further on apply it for later uses.
 
-Thank you for taking the time for my website, and there will be more soon! :D
+At the most, experimenting with AI, and figuring out more with computer parts, I will slowly be able to create and or design a pathway for alternatives for issues and or future problems.
