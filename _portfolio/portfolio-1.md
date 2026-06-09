@@ -1,7 +1,7 @@
 ---
-title: "boti's lit and cool adventure"
-excerpt: "Welcome to my first certififications, excel and powerpoint, as you can see <br/><img src='/images/real.png'>"
+title: "Excel and Powerpoint"
+excerpt: "Welcome to my first certififications, excel and powerpoint, as you can see <br/><img src='/images/ep.png.jpeg'>"
 collection: portfolio
 ---
 
-I have studied hard for these and met the goal required at such a young age.
+I have studied hard for these and met the goals required if Microsoft ever took interest in my skills.
