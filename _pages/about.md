@@ -35,3 +35,4 @@ For JROTC, Dedicated student leader with proven experience managing, training, a
 
 At the most, experimenting with AI, and figuring out more with computer parts, I will slowly be able to create and or design a pathway for alternatives for issues and or future problems.
 Lowkey I can't wait to see where the wind takes me, and if people know this, they'll get the joke "hackyboi.com" "epic hacking skills"
+"Stick em up, cowpoke"
