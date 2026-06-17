@@ -32,6 +32,8 @@ For JROTC, I am a dedicated student leader with proven experience managing, trai
 
 10th (recently finished), reading and gaining hands on experience to further on apply it for later uses.
 
+Recently as of 6/17/2026, I have recieved my certification for Ic3 Spark, I passed the test and moving forward to accomplishing more 
+
 11th (this year), using what I know and repairing both phones and similar devices to it, gaining even more hands on experience, and experimenting with them to add on even more!
 
 At the most, experimenting with AI and figuring out more with computer parts, I will slowly be able to create and/or design an alternative pathway for issues.
