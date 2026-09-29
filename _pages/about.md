@@ -32,10 +32,10 @@ For JROTC, I am a dedicated student leader with proven experience managing, trai
 
 10th (recently finished), reading and gaining hands on experience to further on apply it for later uses.
 
-Recently as of 6/17/2026, I have recieved my certification for Ic3 Spark, I passed the test and moving forward to accomplishing more 
-
+Recently as of 6/17/2026, I have recieved my certification for Ic3 Spark, I passed the test and moving forward to accomplishing more
+As of Jun 23, 2026, i have gained my engaging stakeholders for success, to add on, i have also achieved using computer and mobile devices on Jun 11, 2026. 
+June 30th, 2026, I have completed my design for delight and achieved my badge.
 11th (this year), using what I know and repairing both phones and similar devices to it, gaining even more hands on experience, and experimenting with them to add on even more!
 
-At the most, experimenting with AI and figuring out more with computer parts, I will slowly be able to create and/or design an alternative pathway for issues.
+At the most, I will be experimenting with AI and figuring out more with computer parts. I will slowly be able to create and/or design an alternative pathway for issues.
 For the future employers, I will have to say that, I will devote my time into getting a project or a work order done. I will continue to work my hardest to ensure peak customer satisfaction.
-I also tend to go above and beyond to get the job done.
